@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...How to make my life better
 - 💞️ I’m looking to collaborate on PewPewLive2
 - 📫 The only way how to reach me is Fly to indonesia
-- 😄 Pronouns: Gapl
+- 😄 Pronouns: Whatever
 - ⚡ Fun fact: I'm short
 
 <!---
