@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FlasherxGapple
-- 👀 I’m interested in Programming and Mysteries 
+- 👀 I’m interested in Programming and Networking
 - 🌱 I’m currently learning ...How to make my life better
 - 💞️ I’m looking to collaborate on PewPewLive2, Shattered pixel Dugeon
 - 📫 The only way how to reach me is Fly to indonesia
